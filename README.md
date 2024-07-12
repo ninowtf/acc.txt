@@ -1,4 +1,4 @@
-[# acc.txt](https://tiktok.com/:gamerlukaproyt:!2#4%6&8(0PRo
+(https://tiktok.com/:gamerlukaproyt:!2#4%6&8(0PRo
 https://microsoft.com/:blahblahblah13325@outlook.com:gamerluka$(^
 https://www.mediafire.com/login/:gamerluka496@gmail.com:12345678901
 https://agma.io/:gamerluka10:gamerlukapro
